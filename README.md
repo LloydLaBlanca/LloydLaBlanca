@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Developer Lloyd
+- 👀 I’m interested in Discord Stuffs
+- 🌱 I’m currently learning Coding and Web Designing
+- 💞️ I’m looking to collaborate on some developers all around the world
+- 📫 How to reach me [Facebook](https://www.facebook.com/lloydefreim) and in Discord **Lloyd.asi**
